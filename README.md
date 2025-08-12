@@ -7,11 +7,11 @@
 
 🤝 Open to collaborating on tech or open-source projects
 
-📫 How to reach me: [Your Email or LinkedIn link]
+📫 How to reach me: https://www.linkedin.com/in/lucky-talji-b1012637a/
 
 ⚡️ Fun fact: I love solving technical problems and coding challenges
 
- the Preview link to take a look at your changes.
+:) the Preview link to take a look at your changes.
  
 Linkedin----->    https://www.linkedin.com/in/lucky-talji-b1012637a/
 telegram----->    @Squere99
